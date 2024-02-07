@@ -15,5 +15,5 @@ José Eduardo Luna Vazquez              19141168
 
 Velasco Izquierdo Fidel Alejandro      19270623
 
-Lopez Solis Emanuel Andree             18141057
+Lopez Solis Emanuel Andre             18141057
 
